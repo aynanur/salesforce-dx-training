@@ -1,1 +1,1 @@
-﻿Team status: behind schedule, need help.
+﻿Team status: partly on track for week 2, but behind on some items and could use help.
